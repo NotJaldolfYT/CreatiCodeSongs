@@ -1,7 +1,7 @@
 This song is sexually explicit in the lyrics,
-the song has been censored out, you may not access these lyrics at this time. 
+the song has been censored out, you may not access these lyrics at this time.
 Thank you.
-\n 
+\
 Save me, Mario!
 Please help me, Luigi!
 No, no, no, I don’t think so
