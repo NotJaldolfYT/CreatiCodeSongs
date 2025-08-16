@@ -1,12 +1,12 @@
 This song is sexually explicit in the lyrics,
 the song has been censored out, you may not access these lyrics at this time.
 Thank you.  
-
+|
 Save me, Mario!
 Please help me, Luigi!
 No, no, no, I don’t think so
 Why? Whatcha sayin’ bro?
-That ******** is a ********
+That ###### is a ######
 Luigi!
 Why you out here simping?
 She be creepin’ on the low
@@ -21,7 +21,7 @@ Save me, Mario!
 Please help me, Luigi!
 No, no, no, I don’t think so
 Why? Whatcha sayin’ bro?
-That ******** is a ********
+That ###### is a ######
 Luigi!
 Why you out here simping?
 She be creepin’ on the low
@@ -43,7 +43,7 @@ Save me, Mario!
 Please help me, Luigi!
 No, no, no, I don’t think so
 Why? Whatcha sayin’ bro?
-That ******** is a ********
+That ###### is a ######
 Luigi!
 Why you out here simping?
 She be creepin’ on the low
